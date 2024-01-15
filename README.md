@@ -1,0 +1,7 @@
+-  Hi, I’m flixzi
+-  I’m interested in coding and lumber
+-  I’m currently learning c++
+-  I’m looking to collaborate on nothing because i cant work with others well? idk man
+-  How to reach me discord -> hungoverkid
+-  Pronouns: he/him
+-  Fun fact: die
